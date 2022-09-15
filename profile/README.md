@@ -1,4 +1,5 @@
 # TheDevConnor
+![](https://media.discordapp.net/attachments/923727358433824769/1020065194686296105/60b4b47d1ed6d_json_image_16224554212.png?width=832&height=468) 
 
 Public profile for YouTube projects, etc.
 
